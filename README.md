@@ -1,10 +1,10 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=PogranichnikLyubimaya&color=83676b&style=for-the-badge&label=✦)
   <p align="center">
-      GLORIZEDA DESIGN COMMISION ACCEPTED WORKING WITH HAMU <33
+      GLORIZEDA DESIGN COMMISION ACCEPTED WORKING WITH HAMU <33 DNC 
   <p align="center">
       <img width="900" alt="Glorizeda Design_20260217210326" src="https://github.com/user-attachments/assets/0d59d3e3-3255-44fb-ae65-bd226cf4b1ef" />
     <p align="center">
-    HER DESIGN IN COMING SOON(Spending 2.5k) Her name is Glorizeda She's French and She's Vouivre Wyvern from a french legend. She works at the enfield industry ( Endfield Operator ) as a architect designer and programmer. She like abstract and high fashion. She has a coat that pogranichnik gave her years ago behind her ( The coat is like hellagur the og arknight ) 
+Her name is Glorizeda She's French and She's Vouivre Wyvern from a french legend. She works at the enfield industry ( Endfield Operator ) as a architect designer and programmer. She like abstract and high fashion. She has a coat that pogranichnik gave her years ago behind her ( The coat is like hellagur the og arknight ) 
   <p align="center">
     <img width="700" src="https://github.com/user-attachments/assets/08833a86-5b8e-4b9e-9761-b1fd82c9e113" alt=![Screenshot_2026-01-25-14-38-59-367_jp ne ibis ibispaintx app-edit]>
      <p align="center">
