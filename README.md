@@ -2,7 +2,7 @@
   <p align="center">
       GLORIZEDA DESIGN COMMISSION ACCEPTED WORKING WITH HAMU <33 DNC 
   <p align="center">
- <img width="900" alt="1000003421" src="https://github.com/user-attachments/assets/28da1635-d4eb-49a4-927b-bb836f449172" />
+ <img width="900" alt="1000003423" src="https://github.com/user-attachments/assets/6aaaab08-ff82-420a-a446-1e37d60d201b" />
   <img width="500"alt="1000003410" src="https://github.com/user-attachments/assets/bff3d292-3fac-433f-94bf-b5ea6019c365" />
     <p align="center">
 Her name is Glorizeda She's French and She's Vouivre Wyvern from a french legend. She works at the enfield industry ( Endfield Operator ) as a architect designer and programmer. She like abstract and high fashion. She has a coat that pogranichnik gave her years ago behind her ( The coat is like hellagur the og arknight ) 
