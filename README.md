@@ -1,9 +1,10 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=PogranichnikLyubimaya&color=83676b&style=for-the-badge&label=✦)
   <p align="center">
       GLORIZEDA DESIGN COMMISSION ACCEPTED WORKING WITH HAMU <33 DNC 
+        <p align="center">
+           <img width="900" src="https://github.com/user-attachments/assets/f362608f-fc58-4c8e-a47f-71ededabcff6" alt=![Screenshot_2026-02-23-06-55-59-972_com google android gm-edit]>
   <p align="center">
  <img width="900" alt="1000003479" src="https://github.com/user-attachments/assets/9f6bffa7-4fa1-4b4b-8521-93ef0a7f06da" />
-  <img width="500"alt="1000003410" src="https://github.com/user-attachments/assets/bff3d292-3fac-433f-94bf-b5ea6019c365" />
     <p align="center">
 Her name is Glorizeda She's French and She's Vouivre Wyvern from a french legend. She works at the enfield industry ( Endfield Operator ) as a architect designer and programmer. She like abstract and high fashion. She has a coat that pogranichnik gave her years ago behind her ( The coat is like hellagur the og arknight ) 
   <p align="center">
