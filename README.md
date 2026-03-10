@@ -1,6 +1,8 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=PogranichnikLyubimaya&color=943a56&style=for-the-badge&label=✦)
 <p align="center">
-  <img width="335" height="657" alt="Screenshot_56" src="https://github.com/user-attachments/assets/66d0d961-ecb8-4ccc-89b4-fac06be62a11" />
+  SHE'S SOOOO HOTTTT ART BY @uzziahkarl (Dumpling) 
+<p align="center">
+     <img width="800" src="https://github.com/user-attachments/assets/6bda17cf-dd03-4968-bd5f-c8efa130c394" alt=![Untitled21_20260310211837]>
   <p align="center">
     <img width="555" height="727" alt="Screenshot_57" src="https://github.com/user-attachments/assets/339b5817-043a-4f37-9c40-820713df8968" />
   <p align="center">
